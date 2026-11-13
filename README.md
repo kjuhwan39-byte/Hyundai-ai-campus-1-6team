@@ -1,1 +1,1 @@
-# Hyundai-ai-campus-1-6-
+# Hyundai-ai-campus-1-6team
